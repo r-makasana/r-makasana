@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi👋, I'm Raj Patel 
 
 Welcome to my GitHub profile!  
 
